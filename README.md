@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @lknsintim
-- 👀 I’m interested in pulling baddies
-- 🌱 I’m currently learning how to chase the dough
-- 💞️ I’m looking to collaborate on a 2 man
-- 📫 How to reach me landline
+- 👀 I’m interested in your wife
+- 🌱 I’m currently learning how to create fine shytes
+- 💞️ I’m looking to collaborate on deez
+- 📫 How to reach me telegraph
 - 😄 Pronouns: big/man
 - ⚡ Fun fact: I own 12 cobalt mines in the congo
 
