@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lknsintim
-- 👀 I’m interested in your wife
+- 👀 I’m interested in your birth giver
 - 🌱 I’m currently learning how to create fine shytes
 - 💞️ I’m looking to collaborate on deez
 - 📫 How to reach me telegraph
